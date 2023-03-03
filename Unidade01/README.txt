@@ -1,0 +1,1 @@
+Eu mereço 5, pois fiz o trabalho da maneira correta pelo Eclipse seguindo os passos que foram passados.
